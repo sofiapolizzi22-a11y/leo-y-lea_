@@ -58,12 +58,10 @@ Entra en el mundo de Leo y Lea: descubre los personajes y su aventura!!!
 https://universidaddegranada.h5p.com/content/1292852720179457527
 
 
-- ¿Crees conocer la historia? Demuéstralo completando el crucigrama!! 
+¿Crees conocer la historia? Demuéstralo completando el crucigrama!! 
   https://universidaddegranada.h5p.com/content/1292852720260628727
   
-
-
-- Storytelling: (enlace) 
+Storytelling: (enlace) 
 
 
 
